@@ -12,3 +12,17 @@ svsv sv sv sdv sdv
 fg nghn 
 g mg ghm ghm ghm 
 gm g mghm ghm ghmghmghm
+sdcs d
+ vcsd vc
+ sdv
+ sd
+ vs
+ dv
+ sd
+ v
+ sd
+ v
+ sdv
+ sd
+ v
+ dvs
