@@ -7,22 +7,7 @@ fth f dfgb fgb f fg
 fgnb f f gfg nbfg
 fg fbnh f ghnghn
 dfb f bf df df fdgb 
- fgfgb fgbdf fgb fgb
-svsv sv sv sdv sdv 
-fg nghn 
-g mg ghm ghm ghm 
-gm g mghm ghm ghmghmghm
-sdcs d
- vcsd vc
- sdv
- sd
- vs
- dv
- sd
- v
- sd
- v
- sdv
- sd
- v
- dvs
+sd sd sdc sdc sdc sdc sdc sdc sdc sdc 
+ds dsc sdcs dcsdc sdc sdc sdc ds csdc sd 
+sd csdcsdc sdc sd csdc sdc sdc sdc
+ds csd csdc sdc sdc sdc sdc sdc sdc sd 
